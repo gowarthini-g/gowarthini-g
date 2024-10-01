@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @gowarthini-g
 - 👀 I’m interested in ...Analysing
 - 🌱 I’m currently learning ...B.Tech(AI&DS) 
-- 💞️ I’m looking to collaborate on ...interns and freelance
+- 💞️ I’m looking to collaborate on ...interns,freelance and part-time job. 
 - 📫 How to reach me ...through e-mail
 - 😄 Pronouns: ..."Hard to get Harder to forget ".
 - ⚡ Fun fact: ...I know even I dono
