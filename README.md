@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @gowarthini-g
 - 👀 I’m interested in ...Analysing
-- 🌱 I’m currently learning ...B.Tech(AI&DS) 
+- 🌱 I’m currently pursuing...B.Tech(AI&DS) 
 - 💞️ I’m looking to collaborate on ...interns,freelance and part-time job. 
-- 📫 How to reach me ...through e-mail
+- 📫 How to reach me ...through e-mail, Instagram... >>!! 
 - 😄 Pronouns: ..."Hard to get Harder to forget ".
 - ⚡ Fun fact: ...I know even I dono
 
