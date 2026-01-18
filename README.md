@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ...interns,freelance and part-time job. 
 - 📫 How to reach me ...through e-mail, Instagram... >>!! 
 - 😄 Pronouns: ..."Hard to get Harder to forget ".
-- ⚡ Fun fact: ...I know even I dono
+- ⚡ Fun fact: ...Once a deal🤝 Even the deal couldn't stop my work holic OCD issues??!!
 
 <!---
 gowarthini-g/gowarthini-g is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
